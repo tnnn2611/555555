@@ -25,6 +25,6 @@
 现在就加入我们，免费观看每日更新的日本AV无码中文字幕高清影片，开启你的极致观影之旅！
 
 
-<span style="display:none;">[Canonical link] ( ）</span>
+<span style="display:none;">[Canonical link] ( https://github.com/tnnn2611/555555 ）</span>
 
 
